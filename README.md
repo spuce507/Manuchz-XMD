@@ -1,4 +1,4 @@
-# 🚀 maunchz-Xᴍᴅ 🔥
+# 🚀 Hᴀɴs-Xᴍᴅ 🔥
 
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=900&size=30&duration=4000&pause=1000&width=500&lines=Welcome+to+Manchz-XMD_V1;Created+By+HansTz;Fork+Me+and+Enjoy!" alt="Typing SVG" />
